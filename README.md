@@ -7,7 +7,7 @@
 
 💞️ I'm looking forward to collaborating with enthusiasts in agricultural technology to develop innovative solutions together.
 
-📫 Feel free to contact me via email: sunnywindfrost1@example.com (please replace with your actual email address).
+📫 Feel free to contact me via email: joe940708@gmail.com (please replace with your actual email address).
 
 😄 Pronouns: She/Her
 
